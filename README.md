@@ -5,4 +5,5 @@ File is too big to upload, this is the link , enjoy!:https://cdn.discordapp.com/
 Driver: https://cdn.discordapp.com/attachments/843649821481893909/844724443498414130/daddy.sys
  Add me on discord for any further information: Xc#4633
  Made by: Dyn#0911
-
+credits: FlameZzz#9999 fixing driver problem
+contact me for fix 
